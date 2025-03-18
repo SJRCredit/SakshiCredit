@@ -1,1 +1,1 @@
-https://api.rausjfinto.top
+rausjfinto.top
